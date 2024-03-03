@@ -1,1 +1,1 @@
-![image](https://github.com/Sye0001/Clean-Simple-Bio-Page/assets/119392569/2f91a4c6-b0c4-4004-afb2-2704f72e4d3f)
+https://cdn.discordapp.com/attachments/1125800699243020389/1213844027217023047/combobreak.wav?ex=65f6f358&is=65e47e58&hm=795fd7837826f978a1a02897e7d7121cf7b54b85a092bb465b5c00e397cc6c13&
